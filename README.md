@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @DeadBuccaneer
+- 👀 I’m interested in Gaming 🎮
+- 🌱 I’m currently learning in School
