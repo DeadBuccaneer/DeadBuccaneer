@@ -1,3 +1,1 @@
-- 👋 Hi, I’m Harshit Jangid
-- 👀 I’m interested in Gaming 🎮
-- 🌱 I’m currently learning in School
+
